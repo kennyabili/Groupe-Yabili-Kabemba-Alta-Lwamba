@@ -1,3 +1,6 @@
+Does it mean that au finish, Alta n'a rien fait?
+
+
 # Groupe-Yabili-Kabemba-Alta-Lwamba
 
 Cher Professeur, voici ce que nous avons pû compte tenu des raisons que je vous ai avancé hier.
